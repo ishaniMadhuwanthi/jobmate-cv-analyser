@@ -1,1 +1,1 @@
-Jobmate-Cv Analyzing,Customizing and PDF submission
+Cv Analyzing,Customizing and PDF submission
